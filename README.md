@@ -1,4 +1,3 @@
-![image](https://github.com/Shashank2006offl/study-of-basic-gates/assets/147140026/689f90ff-d18c-4260-8a22-0f2e1beb8cea)### study-of-basic-gates
 
 **AIM:** 
 
